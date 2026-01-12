@@ -11,3 +11,6 @@
 **Type:** Articles  
 **Author:** HBR  
 **Summary:** Industry-leading business strategy insights.
+
+
+##[Team of Teams] (https://www.amazon.com/Team-Teams-Rules-Engagement-Complex/dp/1591847486). 
